@@ -1,0 +1,2 @@
+# brutal
+jangan brutal
